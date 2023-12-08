@@ -9,18 +9,18 @@ to unlock the real story behind Miguel's family history.*
 
 # Character in Coco Movie 
 
-- Ernesto De la Cruz
-- Hector
-- Mama Imelda
-- Mama Coco
-- Miguel 
-- Tios Oscar
-- Abuelita
-- Tia Rosita
-- Tia Victoria
-- Papa Julio
-- Tio Berto
-- Abel Rivera
+- **Ernesto De la Cruz**
+- **Hector**
+- **Mama Imelda**
+- **Mama Coco**
+- **Miguel** 
+- **Tios Oscar**
+- **Abuelita**
+- **Tia Rosita**
+- **Tia Victoria**
+- **Papa Julio**
+- **Tio Berto**
+- **Abel Rivera**
   
 
 # Coco Movie Songs:
