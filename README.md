@@ -32,6 +32,3 @@ to unlock the real story behind Miguel's family history.
 5. La Liorona
 6. Proud Corazon
 
-
-# Coco Poster
-![alt text](coco.jpg)
