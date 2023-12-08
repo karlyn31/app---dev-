@@ -31,3 +31,7 @@ to unlock the real story behind Miguel's family history.
 4. Everyone Knows Juanita
 5. La Liorona
 6. Proud Corazon
+
+
+# Coco Poster
+![alt text](coco.jpg)
