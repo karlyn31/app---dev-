@@ -22,3 +22,12 @@ to unlock the real story behind Miguel's family history.
 - Tio Berto
 - Abel Rivera
   
+
+# Coco Movie Songs:
+
+1. Remember Me
+2. Un Poco loco
+3. The World Es Mi Familia
+4. Everyone Knows Juanita
+5. La Liorona
+6. Proud Corazon
